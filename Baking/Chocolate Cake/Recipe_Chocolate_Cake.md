@@ -1,12 +1,16 @@
 ## Moist Chocolate Cake
+
+<img src="cake_served.jpg" alt="cake cut open" width="300"/>
+
 ### Notes
-\*oatly whipping cream is an easier way to make ganache than dairy double cream
+\*Oatly whipping cream is an easier way to make ganache than dairy double cream.
 
-\*often times I do 250g chocolate and 250ml oatly cream, just because the pack comes in 250ml
+\*Often times I use 250g chocolate and 250ml oatly cream, just because the pack comes in 250ml.
 
-\*adapted from BBC good food 'easy chocolate cake' recipe
+\*Recipe adapted from [BBC Rachel Manley](https://www.bbc.co.uk/food/recipes/easy_chocolate_cake_31070). Dairy-free-i-fied, and some changes to the method. 
 
-\*this recipe also works as one big old traybake
+\*This recipe also works as one big old traybake.
+
 
 ### Ingredients
 
@@ -49,12 +53,14 @@
 8.  Remove the cakes and allow to cool completely. Remove from the tins when cooled.
     
 9.  If using oatly whipping cream for the icing: 
-  a.  Melt the chocolate au bain marie and when fully melted, take of the heat.
-  b.  Add the oatly cream piece by piece and whisk (I use an electric beater) until it is well combined and airy.
+     a.  Melt the chocolate au bain marie and when fully melted, take of the heat.
+     b.  Add the oatly cream piece by piece and whisk (I use an electric beater) until it is well combined and airy.
+<p></p>
     
 10.  If using dairy double cream for the icing: 
-  a.  Heat the chocolate and cream together in a pan on low heat until the chocolate melts. 
-  b.  Remove the pan from the heat and keep whisking until the mixture is smooth, glossy and thickened. 
+     a.  Heat the chocolate and cream together in a pan on low heat until the chocolate melts. 
+     b.  Remove the pan from the heat and keep whisking until the mixture is smooth, glossy and thickened. 
+<p></p>
     
 11.  Set the icing/ganache aside to cool and thicken for 1-2 hours, until thick enough for spreading over the cake. (1 hour tends to be enough each time, my kitchen is quite cold). 
     

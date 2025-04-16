@@ -1,10 +1,13 @@
 ## Tattie Scones
+<img src="scones_in_pan.jpg" alt="tattie scones on the hob" width="300"/>
+
 ### Notes
-\*the thicker the better
+\*The thicker the better.
 
-\*don’t forget the salt in the dough process
+\*Don’t forget the salt in the dough process.
 
-\*dry fry is important
+\*Dry fry is important.
+
 
 ### Ingredients
 
