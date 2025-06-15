@@ -14,7 +14,7 @@
 **Cake**
 
 *   250g margarine / butter (softened)
-*   150g caster sugar
+*   175g caster sugar
 *   4 free-range eggs
 *   250g self-raising flour
 *   3 lemons (zest only)

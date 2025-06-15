@@ -1,5 +1,5 @@
 # Not Too Sweet
-This repo is my own recipe bank. 
+My own recipe bank. 
 
 ### Recipe Adaptations
 Most recipes are adapted to be dairy-free and less sweet.

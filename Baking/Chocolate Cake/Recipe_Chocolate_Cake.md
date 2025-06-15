@@ -11,6 +11,8 @@
 
 \*This recipe also works as one big old traybake.
 
+\*The batter is incredibly runny, to prevent it from spilling through the cracks of a springform, line your cake tin with a full-coverage liner (you can get circle tin liners in most supermarkets). 
+
 
 ### Ingredients
 
@@ -53,7 +55,7 @@
 8.  Remove the cakes and allow to cool completely. Remove from the tins when cooled.
     
 9.  If using oatly whipping cream for the icing: 
-     a.  Melt the chocolate au bain marie and when fully melted, take of the heat.
+     a.  Melt the chocolate au bain marie and when fully melted, take off the heat.
      b.  Add the oatly cream piece by piece and whisk (I use an electric beater) until it is well combined and airy.
 <p></p>
     
