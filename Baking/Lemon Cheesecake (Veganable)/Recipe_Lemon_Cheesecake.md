@@ -7,8 +7,6 @@
 
 \*The thickness of your cream cheese and double cream as individual ingredients will make an important difference in producing a cheesecake that won't fall apart. Violife cream cheese is slightly thicker than dairy cream cheese; oatly whipping cream is thinner than dairy cream _but_ thickens up in the fridge more than standard dairy cream. So I was able to increase the cream:cheese ratio (closer to 1:3). The original recipe using standard dairy products was at a ratio closer to 1:4.
 
-\*If this recipe went well I could dare to add another 50ml of cream with the same amount of cheese. Trying to bulk out the recipe with cheaper product...
-
 \*Recipe adapted and made dairy-free from [BBC Food](https://www.bbc.co.uk/food/recipes/lemon_cheesecake_42423) 
 
 
